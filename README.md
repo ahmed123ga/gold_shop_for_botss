@@ -1,0 +1,1 @@
+# gold_shop_for_botss
